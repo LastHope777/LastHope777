@@ -1,4 +1,4 @@
-![Uploading 75f6362a00fa1abfafb288d999b4ee4f_428191_1748941566.gif…]()
+![75f6362a00fa1abfafb288d999b4ee4f_428191_1748941566](https://github.com/user-attachments/assets/7241cddf-acad-4623-bdcf-8a7c1233cb45)
 
 
 ## 🌐 Socials:
